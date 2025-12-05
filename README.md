@@ -1,2 +1,2 @@
-# Eldoriacharacters
-Murder Mystery Character Profiles-Eldoria Academy
+# Murder Mystery Dinner Party
+Quarantine Notice and Character Profile
